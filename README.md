@@ -17,8 +17,8 @@
 - Resolução de problemas e criação de sistemas
 
 ### 🌐 Como falar comigo:
-- Instagram: @karenmonteiro
-- GitHub: seuuseraqui
+- Instagram: @karenn_monteir0
+- GitHub: karen-monteiro
 
 ### ✨ Fun fact:
 A tecnologia me encantou, e desde então sigo aprendendo e evoluindo um passo de cada vez 🤍
